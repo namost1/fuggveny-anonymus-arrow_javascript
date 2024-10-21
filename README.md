@@ -1,0 +1,1 @@
+# fuggveny-anonymus-arrow_javascript
